@@ -4072,7 +4072,7 @@ In response to ["Reddit, I suck at drawing. How do I get better?"](https://www.r
 
 I'm glad you asked. I have also struggled with drawing. When I was little, I could never stay inside the lines in coloring books. As I got old I took some classes but nothing really helped. I could not make the images in my head appear on the paper. Everything changed when I met Sang-Tua, the Craftsman.
 
-## Chapter 1
+### Chapter 1
 
 Sang-Tua is a kind of underground celebrity in art world. He designs moving sculptures from liquids and plastic casts. His work has been displayed all over the world. There is a show at the MET in NY this year. You should check it out if you get a chance.
 
