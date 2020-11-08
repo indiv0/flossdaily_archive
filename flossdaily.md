@@ -8466,7 +8466,7 @@ Anicetus gazed into the sky, and then back at the chasm in the earth.
 What had happened 2,711 years ago? And why had it happened *then*, after
 nearly 117 million years of tranquility?
 
-### [Part XII (**The Guardian Part 4 of 3**)](https://www.reddit.com/r/AskReddit/comments/aprrn/reddit_tell_me_about_the_absolute_hands_down/c0wknv3/)
+### [Part XII (*The Guardian Part 4 of 3*)](https://www.reddit.com/r/AskReddit/comments/aprrn/reddit_tell_me_about_the_absolute_hands_down/c0wknv3/)
 
 Anicetus was a statue before the magnificent black archway. A light
 breeze swept sand across his ancient frame. His gaze was fixed on an
@@ -9402,7 +9402,7 @@ Pushan, the courier of souls, had lived at least long enough to earn his
 name, for sitting in the archives was the long lost mind of Alexiares,
 pristine and unaltered, as it had been in ancient times.
 
-### [Part XIII (**The Guardian Part 5 of 3**)](https://www.reddit.com/r/flossdaily/comments/eqsdj/sterile_part_xiii/)
+### [Part XIII (*The Guardian Part 5 of 3*)](https://www.reddit.com/r/flossdaily/comments/eqsdj/sterile_part_xiii/)
 
 Anicetus stepped into his stasis compartment and looked down at the husk
 that still bore his faceplate. He had come here to retrieve the lifeless
